@@ -1,2 +1,6 @@
-# Hi-I-m-Janine-
-- Humans Recourses student.  - aspiring software engineer.  - Jesus, literature, music, cultures,photography and codes.
+hey, i'm Janine Pereira.
+📹📷✉️📻🪴
+
+- Human Resources student.
+- aspiring software engineer.
+- Jesus, literature, music, cultures,photography and codes.
